@@ -1,0 +1,6 @@
+- 👋 eai, eu sou o @kleytinhoo
+- 👀 sou estudante do 2°ano do ensino médio
+- 🌱 esto aprendendo programação
+- 💞️ estou a procura de pessoas para socializar
+- 📫 me mande mensagem se quiser convversar
+- 😄 Pronouns:ele/dele
