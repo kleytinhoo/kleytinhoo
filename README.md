@@ -1,4 +1,4 @@
-- 👋 eai, eu sou o @kleytinhoo
+- 👋 eai, eu sou o @kleytonnnn
 - 👀 sou estudante do 2°ano do ensino médio
 - 🌱 esto aprendendo programação
 - 💞️ estou a procura de pessoas para socializar
